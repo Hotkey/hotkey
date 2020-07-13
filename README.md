@@ -1,4 +1,3 @@
-# .github
 ## Who Are You?
 <b>#Hi There,</b> <br/><br/>
 I have 12+ years of experience in software industry and I’m a results-oriented tech lead and software engineer skilled in leading the development of multiple commercially successful products from scratch, with active involvement throughout the development life cycle. I’ve experience in Insurance, Retail (E-commerce), Customer Loyalty Systems and Live Streaming Media industry. I enjoy applying SOLID Principles also Clean Code terminologies.
