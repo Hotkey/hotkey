@@ -20,7 +20,7 @@ ________________________________________________________________________________
 ________________________________________________________________________________________________________________________________________
 
 ### Soft Skills <br/>
-Home Coffee Brewer, Snooker Fanatic, Beer Crafter, Visual Thinker, Retail Tech Fun, Interested in Agriculture, Flower Grower
+Home Coffee Brewer, Snooker Fanatic, Beer Crafter, Visual Thinker, Retail Tech Fun, Interested in Agriculture, Flower Grower, Highland Single Malt Always ;)
 ________________________________________________________________________________________________________________________________________
 ### Any Question? <br/>
 Ask me to @farukalkaya using all social media platforms or email to me!
